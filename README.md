@@ -1,1 +1,0 @@
-# shika-blyat.github.io
